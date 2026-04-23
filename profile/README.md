@@ -180,7 +180,7 @@ Our team is ready to turn your ideas into reality.
 
 - **Location:** Sirajganj, Bangladesh
 - **Email:** [info@oikkosoft.com](mailto:info@oikkosoft.com)
-- **Phone:** +8801628179612 | +8801780365440
+- **Phone:** +8801628179612 
 - **Website:** [www.oikkosoft.com](https://www.oikkosoft.com)
 
 ### Business Hours
